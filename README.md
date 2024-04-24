@@ -1,1 +1,1 @@
-# Game-On-Navigating-the-Dynamics-of-Video-Game-Sales
+# Game On: Navigating the Dynamics of Video Game Sales
